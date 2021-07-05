@@ -1,0 +1,2 @@
+# Easy.uz
+For portfolio
